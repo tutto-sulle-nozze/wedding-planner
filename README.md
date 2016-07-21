@@ -5,7 +5,7 @@ Sul progetto Forge-Allura c'è un utente ad esempio <A HREF=https://forge-allura
 Segue come sempre una descrizione rivista di attività già visibili su siti web legati alle Wedding Planner.
 
 ## Prima professionista
-Si tratta di una Event Planner non convenzionale in quanto fa fare tutto a voi sposi, lei si lmita a suggerire e narrare quelle che sono state le sue esperienze (oltre 1200 matrimoni). Il risultato rispecchia quello che è il vostro desiderio che può essere: di classe, incentrato sul divertimento o entrambe le cose.
+Si tratta di una Event Planner non convenzionale in quanto fa fare tutto a voi sposi, lei si lmita a suggerire e narrare quelle che sono state le sue esperienze (oltre 1200 matrimoni). Il risultato rispecchia quello che è il vostro desiderio che può essere: di classe, incentrato sul divertimento o entrambe le cose. La risposta giusta è sempre lei, una figura professionale al vostro fianco che vi permetterà di sbagliare se lo desiderate, perchè in fondo il matrimonio è una novità anche per voi.
 
 ## Seconda professionista
-Un eveto che vi lascerà senza fiato, questa è la promessa se vi affidate alle caratteristiche suggerite da questo gruppo di professionisti.
+Un evento che vi lascerà senza fiato, questa è la promessa se vi affidate alle caratteristiche suggerite da questo gruppo di professionisti. Donare un valore supplementare alle vostre nozze eseguendo fino in fondo le caratteristiche che voi sposi avete deciso di dedicare all'organizzazione del vostro matrimonio.
